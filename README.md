@@ -4,4 +4,4 @@
 - 🌱 I’m currently learning Lua
 - 💬 Ask me about collaborate
 - 📫 How to reach me:
-- 🥰 Discord: prod. homeless †#6929
+- 🥰 Discord: hmlss#1620
