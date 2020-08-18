@@ -2,4 +2,4 @@
 
 - 🔭 I’m currently depressing
 - 📫 How to reach me:
-- 🥰 Discord: h o m e l e $ $#2937
+- 🥰 Discord: h o m e l e $ $#1620
